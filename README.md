@@ -1,1 +1,1 @@
-# Performance-des--tablissements-français.
+# Performance-des-établissements-français.
